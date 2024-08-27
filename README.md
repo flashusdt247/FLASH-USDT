@@ -13,7 +13,7 @@ Experience the fastest performance with USDT, BTC, DAI, and more across TRC20, E
 Flash USDTs are transferable and withdrawable. It can make multiple "jumps", that is, it can be sent from the transferred account to another account without any restrictions.
 </br></br>
 **_🔑 GET FREE DEMO NOW_**\
-**👤For Important Cases:** [@usdtflashtool](https://t.me/usdtflashtool)
+**👤For Important Cases:** [@usdtflashtool]([https://t.me/usdtflashtool](https://t.me/Usdtflash247))
 <br>
 <br>
 <img src="https://i.ibb.co/WHcDLJ2/photo-2024-08-02-20-33-22.jpg" alt="FLASH USDT with DEMO">
